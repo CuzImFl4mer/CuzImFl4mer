@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @CuzImFl4mer<br>👀 I’m interested in ...<br>🌱 I’m currently learning ...<br>💞️ I’m looking to collaborate on ...<br>📫 How to reach me ...
+👋 Hi, I’m @CuzImFl4mer<br>👀 I’m interested in Developement and Sports<br>🌱 I’m currently learning nothing<br>💞️ I’m looking to collaborate on my network
 
 
 ## 🌐 Socials:
